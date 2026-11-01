@@ -8,4 +8,4 @@
 | Jahra Binte Mamoon | Illustrations |
 
 ## My Contribution
-Created original illustrations using Adobe Illustrator used through the game.
+Created original illustrations using Adobe Illustrator used throughout the game.
